@@ -13,7 +13,7 @@
 ------
 :heart: :point_right: 【邮箱联系方式】 ：xbtv168@gmail.com
 ------
-:sunglasses:重要提醒:sunglasses: 收藏本页面，避免迷路！
+:sunglasses:重要提醒:sunglasses: 收藏本页面，避免迷路！请多收藏本站域名，轻松回家！
 ==
 
 -
