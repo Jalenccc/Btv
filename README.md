@@ -5,11 +5,11 @@
 ------
 :heart: :point_right: 【地址二】 ：https://bb916bb.com/
 ------
-:heart: :point_right: 【地址三】 ：https://bb936bb.com
+:heart: :point_right: 【地址三】 ：https://bb933bb.com/
 ------
-:heart: :point_right: 【地址四】 ：https://bb922bb.com
+:heart: :point_right: 【地址四】 ：https://bb897bb.com/
 ------
-:heart: :point_right: 【地址五】 ：https://xbtv88.com
+:heart: :point_right: 【地址五】 ：https://xbtv89.com
 ------
 :heart: :point_right: 【邮箱联系方式】 ：xbtv168@gmail.com
 ------
