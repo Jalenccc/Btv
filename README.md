@@ -1,15 +1,15 @@
 # B影院
 :sunglasses::sunglasses:B影院 地址发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【本站地址防迷路】 ：https://bb826bb.com
+:heart: :point_right: 【本站地址防迷路】 ：https://bb826bb.xyz/
 ------
-:heart: :point_right: 【地址二】 ：https://bb829bb.com
+:heart: :point_right: 【地址二】 ：https://bb827bb.xyz/
 ------
-:heart: :point_right: 【地址三】 ：https://bb862bb.com
+:heart: :point_right: 【地址三】 ：https://bb828bb.xyz/
 ------
-:heart: :point_right: 【地址四】 ：https://bb866bb.com
+:heart: :point_right: 【地址四】 ：https://bb829bb.xyz/
 ------
-:heart: :point_right: 【地址五】 ：https://bb869bb.com
+:heart: :point_right: 【地址五】 ：https://bb851bb.xyz/
 ------
 :heart: :point_right: 【邮箱联系方式】 ：xbtv168@gmail.com
 ------
