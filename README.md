@@ -3,7 +3,7 @@
 ==
 :heart: :point_right: 【本站地址防迷路】 ：https://bb826bb.xyz/
 ------
-:heart: :point_right: 【地址二】 ：https://bb827bb.xyz/
+:heart: :point_right: 【地址二】 ：https://bb889bb.xyz
 ------
 :heart: :point_right: 【地址三】 ：https://bb828bb.xyz/
 ------
