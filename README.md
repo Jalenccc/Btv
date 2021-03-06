@@ -1,7 +1,7 @@
 # B影院
 :sunglasses::sunglasses:B影院 地址发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【本站地址防迷路】 ：https://bb826bb.xyz/
+:heart: :point_right: 【本站地址防迷路】 ：https://bb888bb.xyz/
 ------
 :heart: :point_right: 【地址二】 ：https://bb889bb.xyz
 ------
