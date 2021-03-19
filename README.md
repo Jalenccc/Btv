@@ -1,7 +1,7 @@
 # B影院
 :sunglasses::sunglasses:B影院 地址发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【本站地址防迷路】 ：https://bv6h6s.vip
+:heart: :point_right: 【本站地址防迷路】 ：https://bc6e7e.vip
 ------
 :heart: :point_right: 【地址二】 ：https://bs6h6r.vip
 ------
