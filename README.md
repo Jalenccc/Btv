@@ -3,7 +3,7 @@
 ==
 :heart: :point_right: 【本站地址防迷路】 ：https://by7k8y.vip
 ------
-:heart: :point_right: 【地址二】 ：https://bs6f8c.vip
+:heart: :point_right: 【地址二】 ：https://bk8g8j.vip
 ------
 :heart: :point_right: 【地址三】 ：https://bs5f8d.vip
 ------
