@@ -1,15 +1,15 @@
 # B影院
 :sunglasses::sunglasses:B影院 地址发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【本站地址防迷路】 ：https://bbaikei.vip
+:heart: :point_right: 【本站地址防迷路】 ：https://bhuanb.vip
 ------
-:heart: :point_right: 【地址二】 ：https://bbaishi.vip
+:heart: :point_right: 【地址二】 ：https://bjiangb.vip
 ------
-:heart: :point_right: 【地址三】 ：https://bbaiwei.vip
+:heart: :point_right: 【地址三】 ：https://bjiaob.vip
 ------
-:heart: :point_right: 【地址四】 ：https://bbanmin.vip
+:heart: :point_right: 【地址四】 ：https://bjingb.vip
 ------
-:heart: :point_right: 【地址五】 ：https://bbaifou.vip
+:heart: :point_right: 【地址五】 ：https://bchoub.vip
 ------
 :heart: :point_right: 【邮箱联系方式】 ：xbtv168@gmail.com
 ------
